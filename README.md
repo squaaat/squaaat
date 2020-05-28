@@ -1,0 +1,2 @@
+# squaaat
+About SQUAAAAT
